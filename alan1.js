@@ -1,1 +1,1 @@
-// and that is me
+// and that is my friend
